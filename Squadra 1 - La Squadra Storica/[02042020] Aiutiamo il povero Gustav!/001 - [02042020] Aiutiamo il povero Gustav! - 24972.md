@@ -1,0 +1,24 @@
+---
+post_id: 24972
+topic_id: 4242
+forum: "Squadra 1 - La Squadra Storica"
+topic: "[02/04/2020] Aiutiamo il povero Gustav!"
+author: "Asuryan"
+date: 2020-04-03T00:32:58+00:00
+---
+
+# [02/04/2020] Aiutiamo il povero Gustav!
+
+*by **Asuryan** on 2020-04-03 00:32 UTC*
+
+Rrawia e Folko nel primo pomeriggio del giorno 24 ottobre si trovano in locanda. Presto si trovano a discutere della situazione della Scuola di Arcanismo Inferiore, e in particolar modo, del fatto che il Rettore, Gustav, evidentemente non è lucido e costituisce un pericolo sia per sé stesso, sia per gli altri, come il fatto che un truffatore gli abbia evocato sotto un Roqtar sta a dimostrare: la prossima volta potrebbe essere una creatura ancora più pericolosa. Rrawia non è molto sicura di poter convincere un uomo così chiaramente convinto di quel che dice, ma Folko propone di prendere la taglia della SSAI alla Gilda del Quartiere Bianco. I due fanno un salto in gilda per prendere la taglia e incontrano brevemente Theodor e Antoine, impegnati a ricontrollare i loro registri: apparentemente c'è un consigliere alla municipalità più pedante del normale che ha richiesto dei controlli straordinari.
+
+Una volta presa la taglia, prete e guerriera vanno alla SSAI a parlare con il Rettore: nel salire le scale, notano che ci sono vari studenti, tutti abbastanza in là con gli anni, che aspettano impazienti l'arrivo di un altro docente ancora. I due comunque non si fermano a guardar l'arrivo del docente e vanno a rivolgersi direttamente al Rettore, "Gustav Arcanis".
+
+Il Rettore descrive l'aspetto esteriore del professore scomparso, Tirin, ovvero il cialtrone bugiardo che qualche giorno fa ha evocato un roqtar nei sotterranei della scuola e poi è fuggito. Gustav crede veramente che Tirin sia scomparso, anziché essere scappato con tutti i soldi che la scuola gli aveva anticipato. Chiede al gruppetto di aiutarlo.
+
+I due decidono di controllare se Gustav è sotto qualche strana influenza magica o ha qualche trauma alla testa, che lo spinge ad essere così credulone e a correre così tanti rischi: lo portano quindi alla Cattedrale di Hopsi al Quartiere Blu. Per convincerlo, raccontano all'uomo che conoscono un seguace di Hopsi che l'ammira molto per le sue grandi conoscenze magiche e vorrebbe tanto parlare con lui. Rrawia corre avanti per trovare un Guaritore abbastanza sveglio da reggere loro il gioco, ed esaminare Gustav fingendo al tempo stesso di essere un fan del Rettore; intanto Folko procede a passo tranquillo con Gustav. Fortunatamente, Rrawia trova una Guaritrice sveglia ed abile, alla quale spiega tutta la situazione: all'arrivo del Rettore, la Guaritrice si finge un'ammiratrice, e lo porta da parte per esaminarlo; l'esame però non dà i risultati sperati, l'uomo non è sotto alcun controllo magico né ha lesioni alla testa, è semplicemente molto credulone e vulnerabile e per questo deve essere protetto. I due spiegano alla Guaritrice che non è così semplice, perché la scuola di magia e il roqtar di cui Rrawia aveva parlato non sono solo nell'immaginazione del Rettore, ma esistono davvero, si parla di una vera scuola fisica, un edificio con degli studenti. La Guaritrice a questo punto sembra preoccupata, perché a tutti gli effetti per la legge di Aaram questo significa che Gustav, che ne sia consapevole o meno, è un truffatore e rischia di passare dei guai legali molto grossi. Il gruppo viene quindi invitato a cercare di persuaderlo a smettere di recitare la parte del mago.
+
+I due decidono brevemente come procedere: Rrawia dice che forse quest'uomo ha una famiglia che lo cerca, e che trovare un parente e portarglielo davanti potrebbe aiutarlo a ricordare la sua vera vita, la sua vera famiglia, ed a capire che questa storia dell'essere un Rettore è solo una fantasia; andrà quindi a cercare nei registri delle persone scomparse qualcuno di cui è stata denunciata la sparizione, che risponda alla descrizione di Gustav. Folko andrà invece presso il Catasto a cercare di capire a chi sia intestato l'edificio in cui adesso si trova la SSAI, e dopo, presso l'Archivio per sincerarsi che il nome di Gustav sia effettivamente falso.
+
+I due si ritrovano dopo poco tempo in locanda, ma non hanno buone notizie: Rrawia riferisce che nei registri delle persone scomparse non è elencato nessuno che abbia l'aspetto di Gustav, tantomeno il nome, e Folko dice che l'edificio in cui adesso si trova la SSAI è intestato a una compagnia di zoroin che di professione comprano edifici, li ristrutturano e rimettono a nuovo, e poi li affittano. Hanno infatti affittato "a una scuola di magia" l'edificio, ma non controllano l'identità delle persone a cui fanno il contratto d'affitto, qualunque nome va bene, quindi Gustav avrà certamente firmato con questo nome... che, non sorprendentemente, una ricerca all'Archivio ha rivelato essere falso. O quantomeno, non presente su alcun registro.

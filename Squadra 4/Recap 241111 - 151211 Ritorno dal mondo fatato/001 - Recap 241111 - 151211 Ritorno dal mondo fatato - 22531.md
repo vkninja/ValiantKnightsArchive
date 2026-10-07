@@ -1,0 +1,58 @@
+---
+post_id: 22531
+topic_id: 3649
+forum: "Squadra 4"
+topic: "Recap 24/11/11 - 15/12/11: Ritorno dal mondo fatato"
+author: "Kjorin"
+date: 2011-12-20T23:55:27+00:00
+---
+
+# Recap 24/11/11 - 15/12/11: Ritorno dal mondo fatato
+
+*by **Kjorin** on 2011-12-20 23:55 UTC*
+
+Circondati da grandi esseri equini, i Kelpie, così ci siamo risvegliati come ci eravamo addormentati. Forse erano semplicemente curiosi, o forse quelli che ci conoscevano hanno voluto farcida guardia, fatto sta che il loro numero era notevolmente aumentato durante il nostro riposo. Abbiamo presto capito perchè: avevano percepito un cambiamento intenso, una variazione nell'ambiente che poteva solo significare una notevole riduzione nel potere di Teind'ha e sapendo della nostra missione sono venuti per avere una conferma. Quando gli abbiamo rivelato che la regina oscura era morta per mano nostra le manifestazioni di gioia sono state quasi commoventi. Sempre in queste occasioni mi piace soffermarmi ad osservare, non per prendere i meriti o esigere i ringraziamenti, ma perchè non c'è cosa che più riempia il cuore di vedere una creatura che ha ritrovato gioia e speranza, sia essa un animale, un essere umano o qualche altra creatura mitologica. Hanno dimostrato la spietatezza della loro natura quando hanno espresso il desiderio di uccidere i servitori di Teind'ha, ma al tempo stesso hanno mostrato il loro senso di rispetto e gratitudine quando hanno desistito immediatamente al nostro diniego.
+
+Ma per quanto ami questi momenti non era certo il momento di perdersi in piaceri quando il nostro dovere non è ancora completo, per questo abbiamo chiesto un passaggio sul dorso dei Kelpie. Passaggio che ci hanno accordato, ed è stato una delle più belle esperienze che abbiamo provato in questo mondo (insieme forse alla marmellata di nuvole): I kelpie hanno un potere insolito che permette a chi li cavalca di incollarsi letteralmente a loro, come se si diventasse una cosa sola. In questo modo è possibile cavalcare con facilità anche ad alte velocità. Infatti, dopo una breve pausa per raccogliere dei rari cristalli di oscurità dalla grotta formatisi per via del repentino cambiamento di condizioni luce/ombra, siamo arrivati davvero in un lampo, poche ore di fantastiche cavalcate nuovamente al sole ed al profumo di bosco e fiori e finalmente siamo tornati al prato dove avevamo incontrato la Regina delle fatine e dove c'è la casetta di quella anziana signora.
+
+Da notare è stato un incontro all'uscita della grotta, un immenso albero parlante ben più amichevole di quelli che popolavano le terre di Teind'ha e Boralia. Una breve conversazione ci ha anche fornito il nome della Regina delle Fate con cui abbiamo parlato: Iridia.
+
+Visto che siamo giunti prima del tramonto, abbiamo deciso di cercare ospitalità dalla simpatica vecchietta ed approfittare della sua gentilezza per avere qualcosa da mangiare in cambio di qualche chiacchera. Nulla di eccessivamente importante da riportare, è stata una conversazione piacevole e pacifica, fino a che al tramonto non abbiamo raggiunto il prato delle fatine. Sono comparse nuovamente come l'ultima volta, in grande allegria e ansiose di trovare dei compagni di giochi. Dato che in questa zona il tempo passa e creare il portale di notte non mi sembrava una grande idea mi sono permesso di promettere alle fatine di giocare con loro la notte in attesa dell'alba, se ci avessero fatto incontrare subito Iridia. Ovviamente hanno accettato subito, piuttosto contente, e noi abbiamo potuto incontrare la Regina.
+
+L'incontro è stato positivo, ma con un'iniziale nota dolente: Mervis, pur tornato umano, ha deciso per ora di abbandonarci. Mi dispiace sinceramente, aldilà della sua cucina stava diventando un ottimo compagno e senza di lui probabilmente non ce la saremmo cavata nello stesso modo nei tempi recenti. Per il resto invece è andata bene, aldilà della soddisfazione nella gioia di Iridia per la caduta di Teind'ha: abbiamo richiesto un'alleanza per aiutare i Regni e la stessa Iridia ne discuterà con la Corte della Luce e con i Crepuscolari. La minaccia evidente contro la foresta di Yvrendal la Regina Iridia si è detta sicura che smuoverà Annwn, il Selvaggio Dominatore dei boschi, e facilmente anche le driadi. D'altra parte Sewelyine già aiuta Aurildil ed ha aiutato molto noi, soprattutto lasciandoci il seme che mi permette di evocarla.
+
+> [23.27.16] <Iridia> "Probabilmente Annwn vorrà partecipare... se sentirà che sul vostro lato la foresta che racchiude Yvrendal è in pericolo."
+>
+> [23.27.37] <Iridia> "La minaccia alle grandi foreste è una delle cose che può maggiormente spingerci ad intervenire."
+>
+> [23.28.44] <Iridia> "Del resto è nelle foreste che la nostra forza è molto maggiore, in campo aperto potremmo aiutare di meno."
+>
+> [23.31.42] <Iridia> "Dell'aiuto di Annwn sono pressoché sicura, ed anche di quello delle Driadi, se vi può rincuorare."
+
+Finita la conversazione con Iridia la regina ci ha lasciato a giocare con le fatine facendo praticamente l'alba. Dopo una breve conversazione con i "prigionieri" liberati da teind'ha, contro la loro intenzione ammetto ma per il loro bene, abbiamo raggiunto il luogo dove ho aperto il portale e lo abbiamo attraversato. Immagino che la stanchezza per la notte insonne mi abbia fatto sbagliare qualcosa, perchè non credo che fosse proprio perfetto come portale: Alcuni di noi infatti, me compreso, sono finiti in una specie di sacca dimensionale.
+
+> [23.10.15] <SGM_Asuryan> Per un attimo avete la sensazione di essere senza peso, e vedete gli altri davanti a voi
+>
+> [23.10.50] <SGM_Asuryan> Poi avete come una specie di scossa di freddo che vi attraversa la pelle, un urto quasi come una stretta di nausea allo stomaco
+>
+> [23.11.10] <SGM_Asuryan> E come una cortina di nebbia cala davanti a voi
+>
+> [23.11.18] <SGM_Asuryan> Zak si sente improvvisamente senza peso, non più la mano di Delian stretta attorno a lui
+>
+> [23.12.02] <SGM_Asuryan> La nebbia si dirada, ma non del tutto, assume più la forma di alcuni sfilacciati punti di bruma
+>
+> [23.12.35] <SGM_Asuryan> E vi rendete conto di essere, solo voi, su un isolotto brullo. Simile a tundra fredda, come aspetto.
+
+Siamo comparsi sopra una specie di isolotto brullo e privo di vegetazione praticamente, il che non era molto incoraggiante. Dopo rapide riflessioni sono giunto alla conclusione che poi si è rivelata corretta: una sacca dimensionale tra le due dimensioni, ancora non ho capito per quale errore ci siamo finiti. Ad ogni modo sapevo che doveva esserci anche un portale di uscita da qualche parte, visto che questo era evidentemente uno snodo tra più dimensioni... il punto era trovarlo visto che l'isolotto sembrava minuscolo e non ce n'era traccia. Determinante per accendere la mia memoria è stata l'osservazione di Xar'va:
+
+> [23.38.56] <Xar`Va> "...non vi sembra...che l'isola si stia muovendo?"
+
+L'avevo già sentita, ero già stato in un posto simile: non eravamo su un'isolotto brullo, eravamo sulla schiena di un Dorago! Quando ho chiesto a Rose di usare un'individuazione ha confermato quest'ipotesi, portando alla luce la notizia che c'erano anche diversi parassiti ad infastidirlo. Il tentativo di comunicare con questi esseri è andato male, visto che hanno pensato che fosse una buona idea mangiarci, sembravamo più teneri del Dorago. Sono bastati pochi minuti, un po' di fuoco, e diversi fendenti tra Flameberge, Seraphil e Zak'vori per far cambiare idea ai superstiti. Purtroppo per loro il Dorago stesso ci ha chiesto il favore di eliminarglieli dalla schiena, e sinceramente non ho mai gradito i parassiti come forma di vita, magici o meno. Una volta eliminati e curate le ferite dell'immensa creatura (non ho mai faticato tanto per mettere a posto delle ferite, sembrava un campo di battaglia...) si è mostrata riconoscente e così ci ha accompagnato al portale che gli sembrava adatto, non prima di averci fatto fare un emozionante giro su un'isola mobile. Siamo rimasti affascinati tutti dall'imponenza di quella creatura, io stesso non ne avevo mai visto il muso in modo tanto ravvicinato. Ad ogni modo siamo tornati in tempo per rassicurare gli altri che si stavano preoccupando, vista la nostra scomparsa improvvisa. Così ci siamo incamminati lungo il sentiero, appena usciti dal portale, per uscire dalla foresta di Yvrendal. All'uscita, esattamente dove eravamo entrati accompagnati da Aurildil, abbiamo trovato una pergamena, inchiodata ad un albero, dall'aria sciupata e logora. Auridil ci aveva lasciato un messaggio nel momento in cui è partita:
+
+> [23.29.25] <Aurildil> "Kashal, mi sono spostata per preparare il pilastro di fuoco con il primo reagente. Appena sarà pronto mi sposterò di nuovo in città, dove ci siamo trovati la volta scorsa, dove comincerò i preparativi per il pilastro di terra."
+
+La pergamena era vecchia di qualche mese, abbiamo capito solo successivamente che era trascorso il tempo al doppio della velocità normale in quella dimensione. Il luogo in cui attendeva quindi il pilastro della Terra era Silvarthia, quindi siamo ripartiti con quella città come meta dopo aver riposato per le fatiche della lunga giornata. Per fortuna siamo giunti nel primo insediamento vicino dopo appena tre giorni, con le provviste che erano oramai razionate sebbene la magia ci permetta di creare o evocare del cibo per sopravvivere. In una settimana siamo arrivati quindi a Silvarthia, ancora in piedi e splendente come sempre, ma con un radicale cambiamento: Il fondo del grande cono attorno al quale Silvarthia è stata costruita è stato cambiato e dove prima c'erano molte cave, disposte sul fondo assieme a coperture per gli attrezzi e per i lavoratori, desso le cave sono state disposte a forma di anello, lasciando un grande spazio sgombro e piano sul fondo. Questo è stato ottenuto sgombrando direttamente la parte centrale delle cave.
+
+Fin da subito abbiamo riconosciuto i due saggi elfici, Aurildil e Lithiunes, al lavoro in fondo e ci siamo mossi per raggiungerli. Sono contento di aver visto l'espressione sollevata di Aurildil nel vederci, ci abbiamo messo tanti in quello che si pensava una missione semplice all'inizio, ma evidentemente la fiducia non è mancata altrimenti non avrebbero iniziato a preparare il pilastro. Entrambi erano entusiasti di avere tra le mani il secondo reagente per la barriera, ed altrettanto contenti nel sapere che proprio ora la Corte della Luce ed i Crepuscolari stanno decidendo se aiutare i Regni. Alleati come le creature fatate potrebbero essere di grande aiuto, soprattutto l'intervento di Annwn a detta di Aurildil e Lithiunes, e Thorgrim si sta impegnando a scrivere una lettera per avere notizie sulla decisione della Fortezza dei Runtar. Altra notizia positiva è stata sapere che Korhalias e gli altri hanno raccolto gli altri due reagenti e presto ci raggiungeranno, il che significa che potremo completare la barriera. Naturalmente avendo a che fare con dei Risvegliati poco propensi a farsi mettere i piedi in testa non poteva andare tutto liscio: i non morti stanno cercando di sfondare e stanno costringendo il fronte a ripiegare fino a Silvarthia stessa.
+
+Dalle parole del messaggero inviato abbiamo due settimane per preparare le difese a Silvarthia e guadagnare tutto il tempo necessario a creare la barriera, così abbiamo iniziato a preparare il nostro piano di battaglia in attesa che altri amici e validi avventurieri ci raggiungano. Il primo passo è senz'altro quello di richiedere rifornimenti dalle Città vicine, perchè serviranno tutte le pozioni che possiamo avere a disposizione: questa volta non potremo salvarci chiedendo aiuto nuovamente alla Fenice...

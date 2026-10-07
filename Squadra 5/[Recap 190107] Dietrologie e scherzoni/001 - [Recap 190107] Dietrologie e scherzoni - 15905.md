@@ -1,0 +1,30 @@
+---
+post_id: 15905
+topic_id: 2449
+forum: "Squadra 5"
+topic: "[Recap 19/01/07] Dietrologie e scherzoni"
+author: "Azaroth"
+date: 2007-01-20T10:50:42+00:00
+---
+
+# [Recap 19/01/07] Dietrologie e scherzoni
+
+*by **Azaroth** on 2007-01-20 10:50 UTC*
+
+Dal diario personale di Melmeric il Folletto,
+
+30 dicembre 1328.
+
+Caro Diario,
+
+che risveglio movimentato oggi, ma in effetti me la sono cercata. E' un po che non ti racconto come vanno le cose, ma sono stato impegnato a divertirmi (per un folletto è un impegno serio). Dopo la vittoria di Leena siamo andati a trovare Gottlor di Basion (si, il signor Patatone) per avere alcuni chiarimenti su alcuni dubbi che ci erano rimasti. Le rivelazioni sono state a dir poco sconvolgenti: siamo arrivati alla conclusione che Krastlof voleva far perdere tutti i poteri alla Matriarca facendole uccidere Liufr, questo per favorire in qualche modo Skam Ult (in qualche modo perverso). Quì dicono che ora che il patto è stato stipulato però possiamo fidarci, ma io non sono molto convinto (e a quanto mi sembra anche Palla di Neve [Warl] è della stessa opinione).
+
+Gli abbiamo anche chiesto consigli sul da farsi per i prossimi mesi, ma non è stato molto di aiuto. L'idea era di cercare di entrare nel sottosuolo per contattare i Nani, che con le loro armi potrebbero fare la differenza, e gli "Enalith" (un popolo di uomini-scorpione, non so perchè ma non mi ispirano molto) che dovrebbero essere degli ottimi guerrieri, ma soprattutto sarebbe vantaggioso usare il sottosuolo durante la guerra (e tutte queste complicazioni tattiche di cui io non capisco molto). Per accedere al sottosuolo bisogna cercare degli "Anfratti", delle aperture verso il regno oscuro. Peccato che questi anfratti sono normalmente creati dagli Zoroin, e quindi entrarvi è decisamente più pericoloso di quanto un povero folletto possa desiderare. Arle è veramente molto convinto di andarci, forse perchè desidera tornare a "casa"? o forse sente di potersi trovare a suo agio lì sotto, chissà. Comunque a Skam Ult non ci sono anfratti (o meglio, li hanno fatti crollare tutti, 'sti Loctar violenti), Leena ne ha localizzati due coi suoi poteri da Matriarca sul suolo di Samnior, uno vicino Ithia e uno vicino ad un forte abbandonato (sono stupefacenti questi poteri, e pensare che ha rischiato di perderli! Sarebbe stata una catastrofe... sento che anche io ho fatto la mia piccola particina nel convincere Leena a non uccidere il povero ragazzo... e ne sono molto contento). Dovremo comunque aggiornare il Patriarca sui nostri progressi, per cui prima si va a Kisif Samor (cercando di evitare assassini Zoroin vari, oh povero me) e poi si cerca una guida per l'anfratto.
+
+Nella settimana successiva Leena è stata molto impegnata con le trattative e i preparativi, quella ragazza mi sorprende: ha imparato un mucchio di cose in così poco tempo, sembra veramente decisa ed ha una tempra d'acciaio (a differenza del tuo caro amico, caro Diario). Io ho occupato il tempo cercando di addestrare Ray, quel testardo d'un cane! Non c'è verso di convincerlo... doveva essere preso da piccolo, ormai ha passato troppo tempo a vivere come un selvaggio (e poi il fatto che sia abituato a capirci non ha aiutato molto). Quindi mi sono dedicato al mio amico Mint, almeno  lui sì che mi ascolta!
+
+E' stata una settimana riposante... peccato per l'epilogo. Come sai il gigante [Arle] mi aveva tirato quel boccale di Mjod addosso: non potevo non vendicare l'onore ferito di un folletto! Chi di scherzo ferisce di scherzo perisce! Ieri sera (29 dicembre) abbiamo cenato tutti assieme e discusso di cose complicate come al solito (ho scoperto cose veramente raccapriccianti su Ithia), Leena poi sembrava molto stanca (aveva anche mal di testa, poverina) e quindi siamo andati a letto. A proposito, Katrine verrà con noi. Una mano in più è sempre gradita e poi il samtimbanco [Yann] sarà più contento. Comunque, proprio con lui (infame, non ha nemmeno provato a difendermi un minimo) avevamo escogitato un controscherzo per Arle. Abbiamo piazzato un secchio sullo stipite della porta lasciata socchiusa poco prima della sveglia, aspettando che Arle andasse ad aprirla. L'abbiamo riempita di olio puzzolente e posizionata in modo che gli cadesse in testa non appena avesse provato ad uscire. Non mi sarei mai aspettato quello che è successo. Il gigante è più agile di quello che sembri, e ha schivato il secchio... che è finito a terra e sul tappeto. Mi ha guardato un attimo, ha capito tutto e poi mi ha infilato a forza dentro il secchio! E quel bruto del cameriere (ma che razza di camerieri sono che se la prendono coi clienti?) lo ha pure aiutato. Si sono svegliati tutti, è arrivato pure il signor Civetta [Thurnjolf] tutto nudo e tutto incazzato, l'elfo bacchettone si è arrabbiato tantissimo... ma insomma, era solo uno scherzo! Erano tutti preoccupati per il tappeto, come se un tappeto sporco in una locanda non si fosse mai visto. Addirittura l'elfo si preoccupava che avrei potuto rovinare l'alleanza con questo scherzo.. ma dico, siamo matti? Rovinare l'alleanza per un po d'olio sul pavimento? Non capiscono il mio senso dell'umorismo. Per fortuna il gigante sembrava quello più calmo (devo ancora ringraziarlo, è una persona veramente buona) e ha cercato di mettere pace. Mi chiedo ancora che razza di locanda punisce i suoi clienti se sporcano, ma in ogni caso ho pulito tutto e non è rimasta traccia dell'olio, anche grazie all'elfo che seppur arrabbiato nero mi ha dato una mano a farlo uscire (ero convinto che se ne sarebbe andato comunque, dato che l'avevo richiamato con la magia.. ma forse le macchie non se ne vanno con la magia... boh!). Alla fine l'oste e il cameriere sembravano pure arrabbiati perchè ho pulito tutto con la magia.... chi li capisce è bravo. Ho pure pagato per il lavaggio e per il disturbo, spero non se la prendano col signor Civetta che ci ha raccomandati anche se mi sembrano un po permalosi (l'oste comunque era calmo stamattina). Davvero non credevo di creare tutto questo putiferio...
+
+Tutto è bene quel che finisce bene.
+
+Melmeric.

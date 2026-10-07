@@ -1,0 +1,32 @@
+---
+post_id: 19172
+topic_id: 2999
+forum: "Squadra 1 - La Squadra Storica"
+topic: "[Recap 22/09/08 - Precauzioni.]"
+author: "Asuryan"
+date: 2008-09-29T05:09:17+00:00
+---
+
+# [Recap 22/09/08 - Precauzioni.]
+
+*by **Asuryan** on 2008-09-29 05:09 UTC*
+
+E così, ci troviamo in una stanza la cui porta si è chiusa di scatto alle nostre spalle per volontà di un qualche misterioso non morto mago, il quale sta preparando un nuovo incantesimo prontamente identificato dai sapienti del gruppo come una specie di risucchiamagia. Beh, quel che conta è provarci, a cercare soluzioni pacifiche ed amichevoli; poi se va male, si lascia la parola alle armi.
+
+E in effetti il nostro avversario non ha retto molto. La sua difesa era quella che è possibile aspettarsi da un mago, una volta raggiunto a distanza ravvicinata da un Loctar con un'arma a due mani. Però mi sono resa conto che all'inizio non stavo colpendo lui. I miei colpi raggiungevano prima una barriera che avvolgeva tutto il suo corpo, poi rallentavano, frenavano. Difficile da descriversi, forse lo paragonerei a cercare di colpire qualcosa sott'acqua, solo che era molto peggio di così. Ma le velocizzazioni di Roque (non saprei più farne a meno! :D ) hanno impedito che il mago approfittasse di quei due minuti in più che la barriera gli comprava lanciando qualche incantesimo che ci sterminasse tutti. Alla fine la barriera si è rotta, l'ho sentita dissolversi sotto il taglio della spada, e il mago si è schiantato a terra da qualche parte nella stanza, mi sembra contro una libreria. Illeso, ma improvvisamente cambiato.
+
+Devo aver colpito e rotto un incantesimo anzichè un corpo: fuori dalla stanza abbiamo sentito il rumore di metallo che sferragliava sulla pietra, e non ci è voluto molto perchè tutti facessimo il collegamento con le armature animate da poco conosciute. La porta si era nuovamente aperta dietro di noi. In breve tempo, Ferol era vicino alla persona che poco prima era uno strano non morto mago (ma era un non morto...? Non sembrava marcio, a ben pensarci. Boh! I misteri della magia.). Si è preso cura di lui, adesso identificabile come un kelliano sui ...trenta? O quarant'anni? Si chiama Yishad, ed è un sacerdote dei tre dei presenti in questo luogo.
+
+E allora ho avuto una realizzazione improvvisa.
+
+Quest'uomo è un sacerdote di Shezam. Con tutta probabilità si sentirà ancora responsabile e protettore di questo tempio a cui apparteneva. Noi siamo qui per ...prendere in prestito? Rubare? Trafugare? Fregarci? Una spada di incalcolabile valore sacra ad un dio, una replica di un artefatto divino venerata per chissà quanti secoli prima del nostro arrivo. Per darla ad un demone.
+
+Non so di quali poteri disponga quest'uomo. Fino a poco fa era una specie di furia magica in grado di crearsi attorno una barriera che finora ho visto saper fare soltanto a JIZIAM. A Jiziam. Non so se i fulmini del giudizio possono farli solo certi sacerdoti ed altri no. Ho deciso di non volerlo scoprire e di evitare il problema alla base. Gli altri sembravano affascinati dai resoconti della vita di questo kelliano - che, detto per inciso, sembra una brava persona - e intanto io cercavo, e trovavo, le chiavi, e uscivo dalla stanza.
+
+Cajvelus. Scomparso. Neanche pezzi d'armatura rimasti. Le altre armature? Non vale la pena cercarle adesso. Ho altre priorità. Avanti. Il reliquiario. Apro una porta, un'altra, un'altra ancora, una quarta, annoto le cose che potrebbe essere interessante mostrare agli altri, ma non sono qui per prendere delle cose per me. Eccola. La prendo. Esco. La consegno. Patteggio. Qualche altra concessione, qualche altro vantaggio. Protezione. Non male. Non solo per me, ma per tutti quanti noi. Bene, si è risolta meglio di quanto pensassi. Ho fatto ciò che dovevo ed ho evitato fulmini del giudizio... forse. Almeno per ora. Ritorno dagli altri.
+
+Sono tutti lì a frugare nella stanza, spostare libri, girare scrivanie, arrotolare tappeti, smontare mobili. Immagino di sapere che cosa stiano cercando, dopo essersi presi cura di Yishad moriranno dalla voglia di visitare il reliquiario, giustamente... ma lì per lì vederli cercare mi lascia sorpresa e chiedo cosa facciano. Saputo che cercavano le chiavi, le mostro. La reazione è di irritazione... e non posso dare loro troppo torto. Io credo che ai bei tempi mi sarei risentita allo stesso modo con quell'elfa cleptomane, come si chiamava... shalinaa. Però la differenza è che Shalinaa avrebbe preso quelle chiavi per aprire tutte le porte e fregarsi qualsiasi cosa non fosse inchiodata al pavimento! Io non sono andata là per prendere nulla per me. Ferol è quello che capisco più facilmente, è più bello se vedi una cosa nuova assieme a degli amici, tutti insieme, piuttosto che dopo che qualcuno c'è già entrato. Ho l'impressione che sopravvaluti il reliquiario... quelle stanze polverose e piene di ragnatele e stracci decomposti che ho visto non sembrano questo granchè. Mi avvicino a Malerthane, un sussurro, un paio di occhiate, lo rendo partecipe dei miei dubbi. All'inizio non lo vedo convinto, ma credo che dopo abbia capito... soprattutto quando siamo arrivati assieme nella stanza del reliquiario dove c'era una rastrelliera con due bastoni magici, dall'aria molto efficiente nonostante l'apparenza fragile.
+
+Sono oggetti tutto sommato comuni, per quanto di mirabile fattura e indiscutibile magia. Ma Yishad vuole che vengano lasciati qui: personalmente, la trovo una cosa un po' triste, dato che potrebbero essere molto più utili donati a un tempio di Basion o Shezam o Marel... vivi... con adoratori e sacerdoti che possano prendersene cura, anzichè qui alla mercè del primo predone imbecille che passa; ma la decisione sembra presa. Se avevo dei dubbi di aver preso la decisione giusta, questo me li ha tolti. Capisco perfettamente il suo ruolo di ultimo protettore di questo tempio abbandonato, e forse nei suoi panni anche io vorrei che le antiche donazioni non venissero disturbate... ma ora non sono nel suo ruolo, sono nel ruolo di una Falconiera che non vuole prendersi il fulmine del giudizio di shezam addosso.
+
+Non credo che gli altri abbiano ancora capito che la Spada Vitrea non c'è più. Spero che non ne parlino troppo davanti a Yishad, tipo "Ah ma dov'è la spada" "ehi non si trova la spada" "Ehi tu sai mica qualcosa di una spada sacra a shezam che è qui da qualche parte eh?", nel qual caso dovrò preoccuparmi di nuovo di qualsivoglia poteri magici sia in grado di scatenarci addosso. Ma per ora, Yishad sembra all'oscuro di tutto.

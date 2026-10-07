@@ -1,0 +1,70 @@
+---
+post_id: 24992
+topic_id: 4262
+forum: "Squadra 1 - La Squadra Storica"
+topic: "[Recap del 05/07/2020] \"Urthinalkan, il Figlio Dimenticato\""
+author: "Korhalias"
+date: 2020-07-06T13:04:23+00:00
+---
+
+# [Recap del 05/07/2020] "Urthinalkan, il Figlio Dimenticato"
+
+*by **Korhalias** on 2020-07-06 13:04 UTC*
+
+Nella grande stanza sotterranea, illuminata solo da alcune torce di luce tenebrose, Folko decreta l'inizio del combattimento evocando Miranda, una guerriera splendente alata in armatura scintillante e con in mano una spada di Luce. Il demone di Umbra che abbiamo davanti, Urthinalkan il Figlio Dimenticato vede così svanire la sua unica possibilità di libertà, accompagnando la sua sorte di prigioniero con un sonoro "NOOOOOO!".
+
+Non si lascia intimidire certamente dal nostro spiegamento di forze e rivela ben presto i micidiali attacchi che ha a disposizione. La testa di serpente si rivela la più rapida nelle azioni e quella che può infliggere gli attacchi magici più disparati. E' inoltre l'unica che si rivolge a noi, segno che la mente pensante del demone risiede proprio lì. Viene attaccata immediatamente da Rrawia e Ao'th, ma prima di ricevere altri colpi, inonda tutta la stanza di una tenebra che ci inghiotte, fino a stritolarci.
+
+E' in questo momento che una nuova voce femminile rompe il silenzio della tenebra, accompagnata da milioni di stelle. "Eri una creatura meschina in quel tempo. Non ti ho sconfitto quella volta. Ma oggi smetterai di tormentare questo mondo. DUO! ASSORBI!" grida stentorea. La sua sciabola dal metallo stellato risucchia la cortina di oscurità che ci attanaglia, rivelando una figura nota ma inaspettata qui. Joanna Arensis, evocata da Rrawia, si è aggiunta al combattimento e non sembra affatto la donna fragile a cui siamo abituati, indossa un'armatura di cuoio tinta di verde e si muove agile come una saetta.
+
+La testa di serpente si erge sopra le altre, irraggiungibile dalle nostre armi e scambia alcune battute con Joanna, rivelando una vecchia conoscenza tra i due, un vecchio duello che non ha visto vincitori e un mistero riguardo la sorella di Jo che a quanto pare il demone sta trattenendo dentro di sè. Inoltre scopriamo ben presto che colpirla con i raggi magici è poco efficace perchè protetta da un guscio di Umbra. Ci dedichiamo quindi alle altre due teste, meno eloquenti ma comunque molto forti in combattimento.
+
+Miranda, Jo e Ao'th colpiscono la testa di drago che più volte soffia inondando la stanza di tenebra e ferendoci seriamente. Gli scudi di Sospel, le cure di Folko e un Guscio di Miranda che fa assorbire a lei i colpi inflitti a noi ci tengono in vita più di quanto saremmo riusciti a fare da soli, dopo molti attacchi sulla pelle pesantemente coperta da scaglie nere, questa testa si accascia al suolo e i nostri si aggiungono a Rrawia ed Astrid che stanno affrontando la testa di Leone.
+
+Questa ruggisce e morde, ma mentre stiamo per eliminare anche questa seconda parte del demone, la testa del serpente riporta in vita il drago prima che Miranda riesca a reciderne il collo definitivamente.
+
+I colpi si susseguono e prima di accasciarsi a sua volta, il leone ruggisce e stordisce tutti tranne Jo, Omnie e Rrawia. Quest'ultima ha quindi la possibilità di troncare definitivamente il leone prima che venga ripristinato a sua volta e ce la fa, mentre il resto del gruppo si riprende.
+
+Il corpo centrale del demone vibra più volte, evocando dal pavimento le stesse mani spettrali che avevamo visto nel Labirinto delle Gioie che ci intrappolano e rallentano, ma riusciamo presto a liberarcene anche grazie all'intervento di Gwinne e Omnie. Questo ci fa capire che il Padrone e la mente dietro a tutto quello che ci è successo qui dentro non era nè Grimloth nè il Liche, ma proprio Urthinalkan, il Demone di Umbra.
+
+Dalla cenere sul pavimento iniziano a sorgere spettri che pian piano vengono risucchiati dal corpo centrale della creatura, andando a gonfiarlo sempre più, dobbiamo fermarlo prima che esploda.
+
+Ci orientiamo quindi sulla testa di drago nuovamente, ora meno pericolosa di prima, ma comunque un nemico duro da abbattere. Joanna usa più volte il potere della sua spada per assorbire tenebra, per darci dei gusci protettivi e per liberare il demone che vive al suo interno. Duo è un gigante di alabastro, nero come la notte e con gli occhi gialli splendenti, solo la parte superiore alla vita è solida, il resto è come un vortice nero che lo solleva da terra. Il forte guerriero avanza fino al Drago, sfondandolo con i poderosi pugni ed assorbendo assetato energia oscura dopo averlo sconfitto. Viene riportato nella spada dopo una lotta di volontà con la sua padrona, che cade a terra esanime. I maghi provvedono a farle bere una pozione che ha nella bisaccia e presto si riprende, anche se le sue sembianze sono preoccupanti: sangue completamente nero, viso sempre più pallido e venature nere che risalgono dal collo. Il serpente ci vuole mettere gli uni contro gli altri, chiedendo come mai siamo alleati con una donna nonmorta che utilizza l'aiuto di un demone del CAOS, che la sua presenza qui è solo per salvare la sorella e non per quello che pensiamo noi, ma non ce ne curiamo, il suo aiuto è fondamentale e le domande verranno solo dopo.
+
+Con due teste fuori gioco, ora concentriamo i nostri colpi sul corpo centrale e sull'abbattimento del Guscio protettivo del serpente. Purtroppo la pelle del Drago è troppo coriacea da recidere e viene ripristinato un'altra volta, ma riportando le pesanti ferite inferte da Duo.
+
+Lucas e Miranda infrangono il Guscio del Serpente, ma questo riesce a ricrearlo nuovamente.
+
+Colpiamo ripetutamente la testa di Drago fino ad eliminarla e reciderla, finalmente e poi passiamo ad attaccare il corpo e la testa di serpente. Nuovamente Miranda e Lucas colpiscono il Guscio di Umbra fino a farlo crollare di nuovo e Omnie riesce a lanciare la magia che teneva in serbo da un po', uccidendo il serpente in un solo raggio di Luce potentissimo.
+
+Il corpo centrale si sta gonfiando a dismisura, riempito da tutti gli spettri incorporei che provengono da tutte le direzioni, centinaia di persone uccise negli anni. Joanna dà fondo a tutte le sue energie e disegna una stella nell'aria con la spada, corre verso il demone e una scia stellata ci investe rendendoci tutti veloci quanto lei. Riusciamo ad infliggere attacchi ad una velocità impressionante, martoriando il corpo di colpi prima che questo esploda.
+
+Quando l'ultimo colpo viene inferto e il nemico è vinto, tutte le anime abbandonano rapidamente il suo corpo investendoci, ma la somma protezione di Jalaum attraverso un incantesimo di Folko fa sì che non subiamo alcun danno.
+
+Purtroppo però questo incantesimo divino, come tutti gli altri lanciati da Folko e Miranda, non hanno effetto su Joanna perchè non è mortale come noi e quindi viene scaraventata contro una parete come se fosse stata colpita in pieno da una mareggiata.
+
+Abbiamo sconfitto il nemico, ma la sorte di Joanna ci preoccupa, non sapendo come fare per salvarla. Troviamo solo alcune pozioni, ma non conoscendo il loro effetto sul suo corpo evitiamo di fargliele bere. Rrawia ci spiega infine che Joanna è in uno stato tra la vita e la morte perenne, è come se fosse stata salvata da Duo nell'istante esatto in cui morì, tempo fa e questo precario equilibrio continuasse in eterno, senza avere mai fine. Per questo non può essere considerata nè viva, nè morta. Mentre ancora è priva di conoscenza, Joanna sparisce in una nuvola di stelle e l'unica speranza che abbiamo è che alla Casa dei Piaceri sappiano prendersi cura di lei al meglio.
+
+Astrid chiede alcune delucidazioni a Rrawia su cosa sapesse di questo posto prima di arrivarci e del perchè non ci avesse detto nulla del legame di Joanna con questo demone, ma non è il momento di iniziare discussioni di questo tipo, sopra di noi sentiamo un grande spostamento di pietre che ci fa immaginare che il Liche abbia percepito la scomparsa del demone e ci abbia chiuso l'unica uscita che abbiamo sopra le nostre teste. Poco dopo un'illusione del Liche compare tra noi, minacciandoci di averci intrappolati per sempre e che saremo suoi ospiti per l'eternità, dicendo inoltre che manderà Sinderion a finirci quando saremo senza forze, tra qualche giorno senza cibo. Probabilmente non sa bene cosa ci è accaduto o non è nel pieno delle sue facoltà, ma al momento ci preoccupiamo di recuperare tutto quello che possiamo dal cadavere del nostro nemico.
+
+Preleviamo la pelle della testa di serpente e quella della testa di drago, assieme ai denti di quest'ultimo. Non c'è traccia del medaglione del Liche che il Drago aveva ingerito, ma a terra scopriamo un buco quadrato pieno di cenere che durante tutto il combattimento non avevamo notato perchè protetto dal corpo del demone. Scaviamo fino a trovare un baule molto pesante. E' un cubo perfetto rivestito in metallo e cosparso di glifi di Umbra che sicuramente ucciderebbero chi tenta di scassinarlo senza la chiave appropriata. Ao'th dice che la serratura richiede una specie di chiave attorcigliata a spirale, tentiamo con la lingua del Serpente, ma questa è troppo morbida per poter azionare il meccanismo. Quella del drago, invece, si irrigidisce quando la si ruota e dopo un paio di tentativi entra alla perfezione, aprendo lo scrigno. Al suo interno troviamo il medaglione che ci ha mostrato poco prima del combattimento in cui è contenuta l'essenza del Liche, necessario per distruggerlo definitivamente, un fazzoletto appartenente a Mimi, un nastro azzurro insanguinato, numerose gemme preziose di grande valore, un simbolo sacro a Fais, un libretto con le istruzioni per un rituale di evocazione per un elementale di Cenere e poi nel doppiofondo della cassa troviamo alcuni disegni e scarabocchi di una creatura umanoide con due teste di rettile che non riusciamo ad identificare ed una mappa di Marga con numerosi posti in cui sono state nascoste cose importanti, magari dallo stesso Grimloth.
+
+Una volta pronti ad affrontare il Liche, distribuiamo le pozioni per chi è rimasto senza, Sospel distrugge il medaglione con un incantesimo e Omnie ci trasporta nella stanza sopra alle nostre teste, sempre accompagnati dal Demone di Jalaum Miranda che può restare con noi quanto a lungo ritiene necessario.
+
+Abbiamo conferma delle nostre ipotesi sull'instabilità del Liche che è totalmente sorpreso di vederci comparire davanti a lui, prendendosi in faccia decine di attacchi prima di riuscire a lanciare il suo unico mortale incantesimo che viene reso innocuo dal potentissimo rituale di protezione di Folko. Omnie lancia quindi un ultimo raggio di luce che finisce il suo corpo nonmorto, ma mentre diventa cenere ancora pensa di poter tornare a tormentarci, inconsapevole che abbiamo già eliminato l'unica sua salvezza.
+
+Il surreale silenzio e la pace ci circondano, finalmente. Ma non durano molto, perchè sentiamo ben presto qualcosa scricchiolare, cadere, crollare sopra le nostre teste. Non ci mettiamo tanto a capire che nulla più sta mantenendo in piedi questo edificio e noi ci troviamo proprio alle sue fondamenta, rischiando di venire sepolti vivi. Omnie beve la pozione donata da Folko e in un istante siamo fuori dalla casa e dal villaggio, vicini ai nostri cavalli. Miranda se ne è andata e siamo fuori pericolo. Vista la fretta che abbiamo e le poche energie rimaste, prendiamo i cavalli con noi e un altro potentissimo incantesimo di Omnie ci trasporta istantaneamente a Forte Valore, all'interno di un recinto dei cavalli.
+
+L'istruttrice viene riconosciuta subito e andiamo a fare rapporto.
+
+Parliamo con un comandante che comprende la nostra situazione e quello che abbiamo passato, vidimandoci la taglia senza fare ulteriori domande che saranno sicuramente poste da organi di livello più alto. Mangiamo qualcosa brevemente e ci rendiamo conto che questa avventura è durata poco più di una notte, una tra le più lunghe della nostra vita.
+
+Cavalchiamo verso la città, euforici e stanchi e mentre Omnie se ne va per fare rapporto immediato a Wyla noi decidiamo di mangiare qualcosa insieme.
+
+Rrawia vuole andare subito a visitare Joanna e Astrid vuole unirsi ma la compagna le nega seccamente di andare alla casa dei piaceri assieme a lei. Dopo qualche insistenza, tutto il gruppo decide di andare a mangiare qualcosa al Pellicano, poco lontano dal quartiere dei piaceri. In questo modo Rrawia potrà controllare se Joanna si è ripresa e se possiamo farle visita tutti assieme, vista la gratitudine che abbiamo nei suoi confronti.
+
+Mentre facciamo colazione a base di pesce fritto, Gwinne identifica il nastro azzurro insanguinato che abbiamo trovato e concordiamo che appartenesse alla sorella di Joanna, pur non sapendo cosa possiamo fare per riportare la sorella indietro, sempre che sia possibile farlo. Rrawia ci informa che Joanna è ancora a letto, che si stanno prendendo cura di lei giorno e notte ma che non sia facile prevedere quando si riprenderà, decidiamo di consegnare il nastro alla casa, di modo che lo trovi al suo fianco una volta sveglia. Rrawia ci dice anche che, da quel che ha capito, c'è qualche modo per salvare la vita di Joanna, dando più potere a lei e togliendolo al demone, ma l'unico modo per ottenerlo sarebbe quello di circondarla di affetti veri e sinceri e non frutto solo di interesse. Sicuramente averci aiutati ed aver spazzato via il velo di ipocrisia che aveva coperto la nostra conoscenza finora potrà aiutare in questo senso, vedremo come andranno le cose.
+
+Cerchiamo di riordinare le idee su quello che abbiamo passato, ma per il momento aspettiamo di essere convocati da Wyla o dalla Regina in persona per parlare di quanto accaduto, per evitare di far spargere la voce di quello che abbiamo fatto.
+
+Gwinne e Folko, spossati dal sonno, vanno a cercare un posto per dormire all'Arsenale, Astrid si reca alla Forgia Runtar del porto per far riparare la sua armatura danneggiata e Rrawia torna alla Casa dei Piaceri per consegnare il nastro. Questa giornata la passeremo a dormire, in attesa di nuovi sviluppi.

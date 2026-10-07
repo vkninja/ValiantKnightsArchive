@@ -1,0 +1,38 @@
+---
+post_id: 25174
+topic_id: 4422
+forum: "Squadra 8"
+topic: "Recap 529 altri orchi"
+author: "Johanne"
+date: 2023-03-01T01:23:53+00:00
+---
+
+# Recap 529 altri orchi
+
+*by **Johanne** on 2023-03-01 01:23 UTC*
+
+parlare del passato rievoca ricordi agrodolci. Per certi versi, sfaccettature dolorose, per altri, ricordi che custodisco con gelosia e affetto, che mi danno quella sensazione come di una leggera scossa alla punta della dita, mentre il petto mi formicola leggero, il cuore batte un poco più forte e i polmoni tendono a richiedere giusto un filo d'aria in più...è una sensazione più piacevole di quel che sembra dalla descrizione, ma non saprei quali altre parole usare. In effetti, non avevo ancora mai parlato della vita precedente al mio viaggio, se non con brevi frasi in base al contesto, e con buona ragione: dubito che ammorbare gli altri con la mia storia possa interessargli, dopotutto non è nulla di davvero interessante: solo una bambina viziata e arrogante che si sopravvalutava, per essere infine rimessa in riga dal mondo stesso una volta messo il muso fuoricasa. Mi piacerebbe sapere come se la sta cavando Myrrwy...mi manca quella pala di pelo...
+
+**schiarisce la gola**
+
+Tornando a noi. La serata con Thoron e Nimel, la ragazza zoroin dalla fisionomia particolare e con lineamenti più simili a quelli elfici che dei parirazza, incontrata poc'anzi, è stata piacevole. Lei sembra una brava ragazza, dolce, ma fin troppo maltrattata dallo stesso mondo da cui papà mi ha sempre protetta (forse fin troppo...un corpo per sviluppare anticorpi forti non può essere lasciato in un ambiente asettico. Forse non si ammalerà mai lì, ma nel momento in cui ne esce fuori, sarà particolarmente fragile). Le cicatrici sul suo volto, il suo modo di parlare, il suo mostrare sfiducia e timore nei confronti del prossimo sono un chiaro segno degli abusi subiti fino ad oggi. Povera ragazza...ma le parole incoraggianti e sagge di Thoron spero le abbiano potuto dare una nuova e migliore prospettiva per il futuro.
+
+Tuttavia si sta facendo tardi, sono quasi due giorni che non dormo e che continuo a combattere...se voglio essere in grado di svegliarmi presto e fare le ricerche che voglio, ho bisogno di andare a riposare.
+
+La mattina arriva, prima dell'alba come concordato con Jawar, torno a Tam-Haam alla ricerca di conoscenza e ingredienti, con lo scopo di poter fronteggiare il morso del deserto. Mi fido delle capacità di Thoron, ma non posso e non voglio dipendere solo ed esclusivamente da lui: se per un qualsivoglia motivo si ritrovasse nella posizione di non poter usare la sua magia o non fosse con noi vorrei ancora sapere come agire senza adagiarmi sugli allori che la comodità della magia ci offre. Ultimamente ho visto abbastanza inferno, vedendo realizzate cose che nella concezione comune sono ritenute impossibili, che ormai non riesco a non aspettarmi un qualche improbabilissimo e terribile imprevisto in grado di cambiare le carte in tavola in pochi istanti. Oltretutto non voglio dipendere dalla magia, non voglio abituarmi a farlo. Senza contare che anche nel caso risultasse non necessario da utilizzare, preparare un piano B è sempre utile. Sai di avere alternative diverse quantomeno.
+
+Ho trovato tutto quel che avevo bisogno di sapere abbastanza rapidamente, fortunatamente è una malattia che sembra essere discretamente conosciuta, e oltretutto gli ingredienti per crearne una cura non sono di complicata reperibilità o dal costo elevato. Torno al villaggio poco prima della fine della discussione sull'attacco: ancora una volta la signora Nicla insiste nel sottovalutare il pericolo, chiamando l'assalto agli orchi una semplice passeggiatina della salute...molte persone sono morte o soffrono terribilmente a causa di quelle bestie...capisco che la sua esperienza di vita e come combattente possano essere notevolmente superiori alle mie, ma è un comportamento che mi da sui nervi. Provo a chiedere di rinviare l'attacco di qualche ora, per poter preparare l'antidoto giusto per sicurezza, richiesta che viene tuttavia negata. Da un lato posso essere concorde, dall'altro un rinvio di poche ore, soprattutto con la possibilità di organizzare qualche forma di scouting dell'avamposto nemico per tenerlo d'occhio, non mi sembra possa cambiare la situazione degli orchi in peggio al punto da non poter aspettare un paio d'ore.
+
+**sigh**...forse sto davvero diventando troppo paranoica. Ora devo concentrarmi sulla battaglia imminente.
+
+Deciso che attaccheremo il prima possibile senza ulteriori ritardi, ci viene concessa un'ora per prepararci allo scontro, che è più o meno il tempo necessario a riunire, equipaggiare e organizzare i villici spiegando loro il piano. Passo quell'ora assieme a Nimel, che si è gentilmente offerta di offrirmi una mano a lavorare le erbe appena acquistate per creare la base dell'antidoto contro il Morso del Deserto...anche se mi toccherà finire il lavoro al ritorno.
+
+Arriva l'ora di mettersi in marcia.
+
+Nessun attacco alle spalle, nessuna tattica particolarmente arguta o strategia degna di uno scacchista: siamo in campo aperto, affrontando il nemico a muso duro, frontalmente. L'effetto sorpresa quantomeno è dalla nostra parte, gli orchi sono abituati a cacciare, non ad essere cacciati; così come sono dalla nostra parte vantaggi come portentosi attacchi dalla distanza a fornirci supporto insieme a cure magiche.
+
+Come avanguardia ci siamo io e Nimel...sembriamo avere una buona compatibilità sul campo di battaglia, intendendoci al volo con attacchi ben coordinati pur non avendo mai incrociato assieme le nostre lame prima di adesso. Subissate dagli orchi, i portentosi attacchi dalla distanza di Nicla, insieme al letale arco di Thoron, oltre al suo essenziale supporto dovuto alle imprescindibili cure che ci fornisce, fanno in modo di non farci subissare e anzi dandoci modo di contrattaccare, senza contare il caos generato da Jawar con la sua abilità, e Caster che sembra cavarsela decisamente bene. Nimel si dimostra incredibilmente letale eliminando un orco dopo l'altro, ma anch'io non voglio essere da meno, abbattendo quello che dovrebbe essere il capo più qualche altro, pur rimanendo sotto di lei nel numero totale di abbattimenti...tuttavia la situazione non era fin dall'inizio a nostro favore, e la cosa non è cambiata.
+
+Più ne abbattevamo, più sembravano arrivarne...Nimel viene prima presa al fianco, una ferita brutta e profonda, e poi ancora, cercando di schivare un altro attacco, si ritrova a terra, in balia degli attacchi nemici: ancora una volta le cure di Thoron fanno la differenza tra la vita e la morte,  e ancora una volta la ragazza si dimostra mostruosamente agile e rapida nel reagire, rialzandosi ancor prima che la caduta potesse crearle qualche problema. Ormai è diventata una lotta di resistenza e volontà: le ferite continuano ad accumularsi, la quantità di sangue perso mi fa sentire anemica, al punto che in certi momenti a fatica riesco a reggermi in piedi, e credo che Nimel sia in una situazione simile alla mia. Gli orchi per quanto affetti dalla malattia, non lo sono che da poche ore, quindi ancora in forze...e soprattutto...sono pur sempre orchi. Delle bestie che fanno della violenza e della forza la loro unica ragione di vita...ma di certo non ho intenzione di darla vinta a questi empi mostri! Per una volta saranno loro quelli braccati, per una volta saranno loro a capire cosa vuol dire essere assediati, a trovarsi dalla parte di chi deve difendersi!
+
+La lotta è ardua, ma alla fine abbiamo la meglio, eliminando un orco dopo l'altro, fino a costringerli alla fuga...ma non glielo permetteremo.

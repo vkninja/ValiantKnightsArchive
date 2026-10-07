@@ -1,0 +1,38 @@
+---
+post_id: 25043
+topic_id: 4308
+forum: "Squadra 1 - La Squadra Storica"
+topic: "[Recap 07/03/2021: combattimenti nel bosco]"
+author: "Asuryan"
+date: 2021-03-14T11:58:49+00:00
+---
+
+# [Recap 07/03/2021: combattimenti nel bosco]
+
+*by **Asuryan** on 2021-03-14 11:58 UTC*
+
+Sospel crea una barriera protettiva in legno, a circondare Omnie e garantirle di poter lavorare al glifo senza essere disturbata, e crea due piccoli elementali che aiutino nel combattimento.
+
+Il gruppo inizia a combattere per guadagnarle tempo.
+
+Sospel lancia un incantesimo che aumenta leggermente il danno inflitto dai due piccoli elementali, e che rallenta alcuni degli orchi e Ao'th, che non la prende benissimo.
+
+Il combattimento prosegue. Il gruppo riesce a gestire piuttosto bene la battaglia, tra attacchi fisici e divini, unico problema il fatto che i grossi scudi di alcuni orchi allungano i tempi necessari per ucciderli. Uno degli orchi fischia per chiamare rinforzi, si sente un fischio di risposta da nord: presto vediamo arrivare due Ettin con altri orchi (tre ogrog e un orco per la precisione) appresso. Sospel prepara un incantesimo che appesantisca Astrid per permetterle di non venire scagliata via da eventuali mazzate: Rrawia rifiuta quest'incantesimo, che impedirebbe di schivare e a lei non porterebbe beneficio.
+
+L'orco, dalla sua posizione, lancia esplosivi. Gli ogrog sembrano molto ben coordinati e addestrati, e usano uno stile di combattimento che impedisce di schivarli tutti, costringendo ad incassare almeno alcuni colpi. Sospel fornisce aiuto contro i potenti colpi degli Ettin piazzando dei gusci protettivi sui compagni. Ao'th nota due sentinelle sugli alberi, e assieme a Rrawia si lancia a ucciderle.
+
+Questo scontro si è rivelato molto più faticoso del precedente: altri orchi sembrano essere in arrivo, comunque. Dieci orchi, più otto che portano con sé un cannone. Sospel lancia una barriera di tempo sperando di bloccare un grosso numero di orchi, ma solo due vengono congelati: nel vedere questo, gli altri si fermano immediatamente e iniziano a montare il cannone, tranne uno che scappa via, indietro. Intenzionato (come scopriremo) ad andare a chiamare uno dei loro sciamani, dei rinforzi per poter contrastare la nostra magia.
+
+Rrawia propone di far comparire una barriera solida davanti all'imboccatura del cannone, attendendo a lanciare questo incantesimo il momento in cui il cannone sta per sparare, in modo che il colpo non possa essere trattenuto: il ragionamento è che l'esplosione, a quel punto estremamente vicina al cannone stesso, oltre a distruggere la barriera, danneggerebbe seriamente anche il cannone e gli orchi vicini. Intanto il primo colpo del cannone distrugge la barriera di legno eretta a protezione di Omnie.
+
+Sospel ignora il suggerimento, ha altre idee: teletrasporta tutti, tranne Ao'th e gli elementali, dietro alla barriera di tempo, a contatto con gli orchi: questo significa che anche Folko e Sospel stessa sono in corpo a corpo con gli orchi, situazione che per loro non è esattamente ottimale, dato che iniziano a piovere colpi. Uno sciamano, e tre guardie del corpo ogrog, è in arrivo poco più indietro. Sospel, vedendosi riempita di colpi e vicina alla morte, decide di scappare con Astrid vicina allo sciamano con le sue guardie del corpo. Folko e Rrawia rimangono in mezzo ai dieci orchi. Rrawia cerca di difendere Folko come può, ma è circondata, e non ha nessun modo di spostare l'attenzione degli orchi che attaccano Folko su di sé: inoltre anche questi orchi sembrano in grado di attaccare in modo coordinato. Incantesimi di Ira permettono di sfoltire la massa di orchi.
+
+Gli ogrog guardie del corpo, invece, sembrano più interessati a Rrawia e Folko che a Sospel e Astrid e provano ad attaccare i primi due, ma rimangono bloccati nella barriera di tempo. Astrid attacca lo sciamano, ma questo getta a terra un piccolo oggetto che diventerà poi un grosso elementale di magma, il quale affronta Astrid impedendole di togliere di mezzo lo sciamano in modo diretto. Sospel lancia un incantesimo di annullamento per impedire allo sciamano di colpire con i propri incantesimi, sembra avere un ottimo effetto. Per cercare di avere più facilità nel lanciare ulteriori incantesimi sullo sciamano, lo segue molto da vicino, allontanandosi rispetto allo scontro Astrid ed Elementale di Magma, che è piuttosto concitato.
+
+Omnie termina con il suo glifo e Ao'th, molto seccato per essere stato piantato a non fare niente salvo guardare da lontano i suoi amici venire pestati, avvisa che i due stanno arrivando. Omnie beve una pozione e inizia a lanciare incantesimi: rende infuocate le barriere di Tempo di Sospel, che inceneriscono orchi ed ogrog che vi si trovavano dentro.
+
+Lo sciamano capisce la mala parata e fischia. Apparentemente, stavolta non accade nulla. Quindi, o non ci sono rinforzi in grado di aiutarlo, oppure quei fischi significavano qualcos'altro, come ad esempio, sospetta Rrawia, un messaggio a chi si trova al prossimo punto d'interesse di prepararsi allo scontro.
+
+L'elementale di magma viene distrutto da Astrid. Gli orchi attorno a Rrawia vengono finiti. Lo sciamano cerca di fuggire ma resta intrappolato in una nuova barriera di tempo, stavolta lanciata da Omnie. La situazione sembra tranquilla, alcuni orchi massacratori sono ancora vivi ma stanno venendo attaccati da Rrawia e Astrid, lo sciamano sopravvissuto anche se paralizzato, ma Omnie cade a terra sconvolta dalle risate, che presto si trasformano in convulsioni e vomito. Rrawia sospetta che possa essere un effetto delle pozioni che Omnie sta bevendo una dietro l'altra, una specie di avvelenamento, e suggerisce a Folko di curarla dal veleno. Sospel, poco pratica, prende una delle sue pozioni di guarigione di punti vita e punti svenimento e gliela fa bere, ma le condizioni di Omnie se possibile si aggravano, dato che essendo intossicata PROPRIO da pozioni, è come aggiungere veleno al veleno in questo momento. Un incantesimo di cura la rimette in sesto. Astrid si allontana a frugare in giro, Rrawia e Ao'th finiscono gli ultimi orchi. Omnie si rimette in piedi, malconcia, vomitando ancora: costretta dalla situazione, spiega che lanciare tutti questi glifi a cose normali è impossibile e che tutte le pozioni che sta bevendo, e che le hanno causato intossicazione, sono necessarie per poter svolgere questa missione. Ao'th è seccato nei confronti del Principe, il cui piano richiede così tanto sacrificio per essere attuato, ma Omnie è forte nel suo senso del dovere. Rrawia scioglie i corpi: obietta che se il bosco verrà distrutto dalla magia, non dovrebbe essere necessario, dato che questa distruggerà anche i cadaveri, ma Omnie la incoraggia a scioglierli con un enigmatico "non si può mai essere troppo cauti"; quasi che si aspettasse che il piano potesse fallire. Il gruppo si chiede cosa fare con il cannone: il tempo però è scarso, siamo già in ritardo (leggero) sulla tabella di marcia; perdere tempo a seppellire il cannone - più per proteggerlo dall'esplosione magica che per nasconderlo dagli orchi, il segno della sepoltura si vedrebbe troppo bene - nella speranza di poter tornare a riprenderlo a cose finite farebbe purtroppo perdere molto tempo e pregiudicherebbe la possibilità di lanciare i prossimi glifi senza problemi, soprattutto considerando il rischio di trovare altri ostacoli lungo la strada a far perdere ulteriore tempo.
+
+TL:DR. Tre combattimenti. Uno facile, due difficili. Tiri di dado molto fortunati hanno salvato il gruppo da decisioni tattiche molto avventate. Omnie rivela che deve bere pozioni fino a star male pur di attuare il piano.

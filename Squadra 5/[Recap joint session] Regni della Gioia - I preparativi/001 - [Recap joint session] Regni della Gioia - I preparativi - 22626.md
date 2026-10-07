@@ -1,0 +1,68 @@
+---
+post_id: 22626
+topic_id: 3657
+forum: "Squadra 5"
+topic: "[Recap joint session] Regni della Gioia - I preparativi"
+author: "Korhalias"
+date: 2012-01-14T12:43:16+00:00
+---
+
+# [Recap joint session] Regni della Gioia - I preparativi
+
+*by **Korhalias** on 2012-01-14 12:43 UTC*
+
+Raccolta l'essenza d'aria dalla terrazza sulla sommità del primo tempio di Uuri, abbiamo chiesto ad un Haooua se fosse possibile sfruttare il vento per lasciare quel luogo come la volta precedente. Dopo esserci concentrati sul volto di Aurildil e sulla città di Silvarthia, abbiamo toccato i petali della Rosa dei venti e subito siamo stati sollevati, diventando tutt'uno con le correnti d'aria che ci circondavano e in pochi istanti ci stavamo muovendo a velocità elevatissima sopra il mare che ci separava da Tolaria.
+
+In balìa dei venti abbiamo sorvolato le coste dei Regni della gioia e ci siamo insinuati nella città dove ci aspettavano, superando le costruzioni a livello del terreno e scendendo nella grande cava abitata che nei secoli è stata scavata a forma di cono per rincorrere ed estrarre materiale dalle grandi miniere d'argento che si trovano qui sotto.
+
+Con grande precisione, il vento ci ha fatti comparire all'improvviso davanti ad Aurildil proprio mentre stava discutendo di qualche problematica da risolvere con le altre persone che avremmo dovuto raggiungere: Kashal e i suoi compagni, amici di Samnior e Ambasciatori dei Regni della gioia che da tanto tempo sono a Tolaria per dare un grande aiuto a risolvere la piaga delle invasioni di nonmorti di Chogleq dopo la caduta del Tempio.
+
+Abbiamo sicuramente interrotto qualcosa e dalle loro reazioni la nostra comparsa dev'essere stata decisamente inaspettata al punto che ci stavano per attaccare, soprattutto per via dei numerosi nuovi compagni che ancora non avevamo incontrato, ma dopo qualche rapido segno di riconoscimento siamo passati alle presentazioni e tornati presto al motivo della nostra presenza.
+
+Nel mostrare ad Aurildil le due Essenze che avevamo recuperato, si è detta molto soddisfatta e si è subito preoccupata del tempo a disposizione dei Regni per poter innalzare la nuova barriera prima che i nonmorti invadano in massa sfruttando la breccia fatta in corrispondenza dell'antico Portale del Leone.
+
+Il Pilastro della Terra legato all'essenza recuperata nel mondo fatato dai nostri amici era già in corso di realizzazione proprio qui ad opera del saggio di Silvarthia Lithiunes e nel giro di qualche giorno sarebbe stato completato.
+
+Per i Pilastri dell'Aria, del Fuoco e dell'Acqua ci avrebbero pensato i Saggi delle altre principali città dei Regni: Creylas, Thal Keithi e Scynthal. Non potendo aspettare oltre, Aurildil si è subito diretta a Thal keithi per iniziare il lungo rituale del fuoco che le spettava e per quanto riguarda l'utilizzo del Cuore di Liche che avevamo recuperato ci ha confessato di non aver ancora preso una decisione, ma che per il momento preferisce aspettare in quanto non è certa della sicurezza di un reagente così legato alla nonmorte quando in campo ci sono poteri come quelli di Chogleq.
+
+Espletati i consueti obblighi di indossare i cerchietti con le annesse lamentele da parte di chi li porta per la prima volta, siamo rimasti soli e ci siamo fatti spiegare la situazione da Kashal e i suoi amici, ovviamente dopo aver espresso il nostro sentito cordoglio per la morte eroica di Buzz Zeal.
+
+A quanto pare, le forze di tutto l'esercito dei Regni non sono più in grado di trattenere l'*orda* di nonmorti..ammetto che mi fa impressione chiamarla così dopo essermi abituato a considerarla una parola "amica".
+
+La cavalleria elfica sta ritirando verso la città di Silvarthia in quanto primo ostacolo all'avanzata del nemico e sicuramente sede di una grande battaglia nelle prossime settimane. Il numeroso esercito di Chogleq è fortunatamente lento, anche se instancabile e ci raggiungerà non prima di quindici giorni.
+
+Il nostro compito è quello di aiutare gli amici elfi a rallentare l'avanzata dei nonmorti e a preparare il campo da battaglia nei pochi giorni che rimangono, sfruttando tutto il potenziale che i Regni e i suoi abitanti ci mettono a disposizione in attesa che anche la neo-formata Alleanza Tolariana, frutto di sforzi diplomatici dei nostri amici, ci raggiunga colpendo i nemici alle spalle.
+
+Incontriamo poi Lord Celegon Goldmane, comandante delle truppe di Thal Keithi di ritorno dal fronte con la sua pattuglia di Ippogrifi stanchi e feriti. La situazione è dura e a quanto pare l'esercito nemico ha tra le sue fila oltre ai Wynchinnar, nonmorti abbastanza deboli e suscettibili ai classici attacchi magici di energia vitale ma con la capacità di causare confusione nella mente di chi si avvicina, e ai Millenari, creature più intelligenti che organizzano i guerrieri più deboli in attacchi precisi e pericolosi e sono in grado di infettare con una Malattia letale curabile solo nei primi istanti dopo il colpo inferto, anche dei maghi la cui magia, del tutto simile alla nostra, è corrotta dal caos e quindi imprevedibile e capace di superare i vincoli e i limiti a noi imposti come la possibilità di colpire bersagli nascosti facendo percorrere tragitti non lineari ai propri incantesimi.
+
+Come ulteriore difesa, Kashal propone di chiedere l'aiuto ad una creatura del mondo fatato che potrebbe essere disponibile a dare fondo alle proprie energie per evitare che con l'invasione dei Regni, anche il suo mondo rischi la stessa sorte. Usciamo quindi dalla città e raggiungiamo un piccolo bosco dove evoca una Driade, Sewelyine, dopo aver posto a terra un seme magico. Dai fili d'erba subito inizia a crescere una splendida creatura evidentemente legata alla terra e alla natura che si dice disposta a chiedere ad Annwn l'inarrestabile di intervenire, ma per poterlo fare è necessario modificare radicalmente la città di Silvarthia, fino ad ora marcatamente rocciosa, in una più verte e lussureggiante, così che l'aiuto di Annwn possa avvenire in un luogo a lui affine.
+
+Non potendo prendere noi una decisione così vincolante per la città, riteniamo sia meglio consultarci con il Saggio e il Lord di Silvarthia e poi comunicare a Sewelyine la decisione presa il giorno successivo.
+
+Iniziamo a suggerire i primi compiti da svolgere e grazie anche alla grande disponibilità di reagenti di Fuoco, di maghi incantatori e di laboratori progettiamo 200 oggetti esplosivi che verranno utilizzati con armi da lancio dalla lunga gittata e caratterizzati dall'elevato raggio di impatto o come oggetti da distribuire all'esercito per danneggiare gruppi di nemici in mischia.
+
+A grande distanza dalla città, per rallentare i nonmorti, verranno scavate grandi e profonde buche pietrificanti di modo che nell'avanzata ci sarà qualche nemico ucciso dalla caduta e, grazie all'abilità dei molti fabbri, minatori ed abili ingegneri verranno costruite barriere fisiche e magiche, realizzate trappole e percorsi obbligati tutti atti a concederci più tempo nella preparazione della città.
+
+La cattiva sorpresa, il giorno seguente, è invece la notizia che il lord di Silvarthia, Lord Shediagath è stato pesantemente ferito da un nonmorto e le cure tentate fino a quel momento non sono riuscite a riportarlo in salute, costringendo i sacerdoti a bloccarlo temporaneamente in una barriera di Tempo per evitare che le sue condizioni peggiorassero irrimediabilmente.
+
+Torniamo a richiamare Sewelyine prima di occuparci della salute del Lord e con noi ci sono sia Lord Celegon Goldmane che il Saggio Lithiunes, analizzano con la Driade l'impatto che una modifica del genere possa influire sulla città ma a fronte del beneficio che può garantire l'aiuto di Annwn si dicono disposti al cambiamento e accettano. Sento che questo passo rappresenta molto più di una difesa addizionale, per gli elfi tra cui sono cresciuto questo salto nel buio è una presa di coscienza che d'ora in poi nulla è più certo come è sempre stato al sicuro nelle proprie mura. Bisogna confrontarsi col mondo e adattarsi senza aspettare che siano gli altri a farlo e vivere positivamente tutto questo dopo essere entrati in contatto con Fadeyn ed il suo demone mi fa capire che condivido realmente parte del suo pensiero anche se non i metodi che usa. So che per Daresh questo possa suonare strano, ma ho sempre considerato il cambiamento come occasione di crescita ed è proprio questo il motivo per cui ho iniziato a viaggiare abbandonando questo luogo e sono contento che il cambiamento, anche se in minima parte, sia riuscito a superare la barriera fisica e mentale delle mura dei Regni della Gioia.
+
+Tornati in città andiamo subito al palazzo dove lord Shediagath è mantenuto in vita grazie alla barriera di tempo. La spada di Delian, Zak Vori, possiede alcuni poteri magici oltre alla palese capacità di pensiero e parola che elargisce ampiamente, tra cui la possibilità di osservare all'interno dei corpi e degli oggetti, riuscendo così a trovare una minuscola scheggia di metallo conficcata nel cuore del signore della città. Analizzandola meglio riusciamo anche a comprendere come sia possibile che le cure e i tentativi magici finora utilizzati non abbiano avuto effetto, la lancia che l'ha ferito era incantata con un incantesimo di Repulsione di Magia e fabbricata con un materiale fragile e friabile. L'accoppiata di queste due cose è un'arma subdola e sporca, incapace di uccidere sul colpo, ma perfetta per causare una morte lenta e dolorosa, se usata con abilità. Non possiamo permettere che il signore della città muoia in un momento così importante e cruciale per l'umore di tutti i soldati dell'esercito e progettiamo un insieme di abilità e magie per riuscire ad estrarre la scheggia e salvare la vita a Lord Shediagath.
+
+Rallentiamo il suo battito del cuore trasformandolo in minima parte in una creatura dalle pulsazioni basse, in più aggiungiamo un incantesimo di rallentamento ulteriore. Kashal, che si occuperà di eseguire l'operazione, viene invece velocizzato nei movimenti e potenziato nei sensi, oltre che facilitato grazie ad un altro potere di Zak Vori: la comunicazione mentale per immagini, riuscendo quindi a vedere la posizione della scheggia e le conseguenze dei suoi movimenti. Infine un incantesimo di lenta rigenerazione impedirà al paziente di sanguinare troppo rapidamente e faciliterà la ripresa ad estrazione ultimata.
+
+Quando tutto è pronto, lo liberiamo dalla stasi a cui è sottoposto e in pochissimi istanti l'abile mano del mago estrae il frammento consegnandolo subito a Lithiunes per farlo identificare.
+
+Un'operazione difficile e che ha richiesto molte abilità ed idee diverse per trovare una soluzione.
+
+Scampato il pericolo abbiamo provveduto a dare il via alla rapida trasformazione della città da cava mineraria a foresta verdeggiante. Il seme utilizzato per evocare la Driade è stato piantato in una cava in profondità e annaffiato, ma nulla è successo fino alla notte successiva: un forte rumore di pietra spaccata ha risvegliato tutta la città seminando per alcuni istanti la paura che i nonmorti fossero già arrivati, ma quando abbiamo visto rami e radici spuntare dalle pareti rocciose aprendosi varchi e crepe, ci siamo resi conto che il processo aveva avuto inizio e che sarebbe stato molto veloce e vigoroso. Col tempo ci siamo tutti resi conto che non ci sarebbero stati danni alle abitazioni, alle rampe e alle terrazze, come se i grossi tronchi e i rami sapessero cosa evitare e come crescere tra le case e, giorno dopo giorno, la città cambiava continuamente tra lo stupore degli elfi che prima o poi si sarebbero dovuti abituare a vivere in una città nuova.
+
+Quello che più ha cambiato Silvarthia, però, é quello che è avvenuto in superficie, all'esterno della grande cava, infatti, giorno dopo giorno è cresciuto prima un bosco, poi una foresta che si è allargata e infittita sempre più fino ad assomigliare alla giungla varadiana più lussureggiante ed incontaminata, con immensa felicità di Daresh.
+
+I giorni rimasti prima dell'inizio della battaglia sono pochi, Lord Shediagath si è ripreso ed assieme a Lord Celegon stanno organizzando i reparti difensivi sfruttando le abilità dei vari  soldati. Sono state costruite pesanti macchine d'assalto per il lancio di rocce e massi estratti dalle cave, gruppi di maghi-soldati a cavallo degli ippogrifi stanno facendo piovere da giorni migliaia di rocce e pietre sulle teste dell'esercito nonmorto per cercare di ferire o ucciderne un discreto numero prima che arrivino alla città, all'esterno della giungla sono state realizzate delle torrette che verranno utilizzate per lanciare dei dardi esplosivi quando saranno in avvicinamento e gran parte della zona dove avverrà il combattimento è stata incantata dai sacerdoti con alterazioni ambientali di vita che danneggeranno i Wynchinnar e con Protezioni dalla nonmorte per ridurre i danni dei loro attacchi.
+
+Ho realizzato una mappa dettagliata delle trincee e dei fossati disseminati sul suolo dei Regni e spero che Yann riesca a consegnarla ai generali dell'Alleanza tolariana per permettere loro di suddividersi in maniera da non risentire troppo degli ostacoli che abbiamo piazzato lungo la loro strada così da poterci raggiungere presto.
+
+In questi giorni, Fedragon con l'aiuto di Hallvarth e Justus hanno realizzato un oggetto che ci sarà senz'altro utile in combattimento: una grossa cassa di legno animata in grado di colpire il bersaglio indicato dall'elfo con due balestre nascoste al suo interno.
+
+Tutto è pronto per l'inizio della battaglia, che gli dei ci assistano e ci concedano tutto il supporto e l'appoggio necessario per eliminare la minaccia di Chogleq una volta per tutte da Tolaria.

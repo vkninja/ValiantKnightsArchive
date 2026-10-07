@@ -1,0 +1,32 @@
+---
+post_id: 25056
+topic_id: 4321
+forum: "Squadra 1 - La Squadra Storica"
+topic: "[Recap 07/04 + 11/04 Ao'th fuori dai guai + alla ricerca del Braccio]"
+author: "Asuryan"
+date: 2021-04-18T09:15:12+00:00
+---
+
+# [Recap 07/04 + 11/04 Ao'th fuori dai guai + alla ricerca del Braccio]
+
+*by **Asuryan** on 2021-04-18 09:15 UTC*
+
+La mattina del 4 Gennaio. Rrawia e Folko si trovano a far colazione con Thelda che prepara frittelle, raggiunti presto da Aleinya e poco dopo da Ao'th. Dopo alcuni commenti sulla cucina di Thelda, e altri sulle peripezie amorose Folko e Ao'th, Rrawia rivela che quando la sera prima è andata a portare a riparare la sua armatura, ha visto (non notata) Ro'a, uno zoroin ignoto, e la cugina Ze, intenti ad attendere qualcuno davanti alla locanda del Cofanetto, al quartiere verde. Il discorso si sposta quindi su come affrontare il problema dei cugini, non più differibile.
+
+Mentre Folko dichiara di esser seccato da tutta la faccenda e non volerne sapere nulla, Rrawia inizia a stendere possibili piani d'azione assieme ad Ao'th: le proposte di quest'ultimo variano da "ammazziamo il cugino" a "diciamo agli D'za Doryen che possono attaccare Ro'a ed è privo di antidoti per difendersi", a "andiamo a chiedere a El'belith di intimare al cugino di non rompere, non si sa in cambio di cosa". Ai Lupi Neri queste idee non piacciono. Rrawia suggerisce di presentare Ro'a al Principe come colui che ha donato l'antidoto e "regalargli" quindi un importante favore politico, Folko mette il veto anche su questo, nonostante sia una soluzione che non farebbe sporcare le mani di sangue. Rrawia suggerisce un risarcimento, impossibile a detta di Ao'th perché l'antidoto è letteralmente inestimabile. Quindi nuova proposta di Rrawia, organizzare una sorta di retata delle guardie a casa di Ro'a così' da dargli qualcos'altro che lo tenga occupato, anche questa una soluzione pulita. Questa potrebbe essere interessante: Rrawia fa notare che l'unica altra possibilità è coinvolgere Li'qaj, a questo punto.
+
+Arriva Miri, venuta a portare le uova fresche alla cugina Eloine; pare che un signore zoroin abbia lasciato una lettera per Ao'th, raccomandandole di consegnarla. Miri, diligente, oltre a portare le uova ha anche consegnato la lettera. Meon, il capo delle guardie, ci informa che sono comparsi due zoroin che adesso bazzicano attorno alla casa. Ovviamente Miri è stata pedinata. Ao'th, messo con le spalle al muro, decide finalmente di chiedere l'aiuto della sorella. Il nuovo piano è di mandare Aleinya, non nota ai cugini. Rrawia suggerisce di travestirla da cameriera, in modo che ci sia maggiore possibilità che i cugini la ignorino. E' quel che avviene: Aleinya indossa un'uniforme da cameriera, prende un bel cestino, lascia l'alabarda (ma si porta dietro il pugnale) ed esce portando un messaggio di Ao'th.
+
+Sospel e Astrid si svegliano, vengono brevemente messe al corrente degli ultimi sviluppi. Dopo poco, torna Aleinya assieme ad Hoq, il quale avverte che Li'qaj arriverà presto. Hoq è molto seccato e aggredisce verbalmente Ao'th. Di lì a poco arriva anche Li'qaj, che aggredisce anche fisicamente Ao'th (solo uno schiaffo, comunque). Il gruppo si affretta a spiegare ai due che Ao'th ha agito a fin di bene, ma Ao'th ripristina subito la sua reputazione di cretino dicendo che già che c'era ha rubato alcuni "oggettini" che vanno dal molto prezioso (una pezza di ottima seta zoroin) all'inestimabile (un anello di finissimo argento, eredità di famiglia, pesantemente incantato, che venne regalato alla cugina ze in una solenne cerimonia dal nonno). Si decide dunque di restituire ciò che è stato rubato, Li'qaj e Ao'th andranno assieme a riconsegnare tutto e Ao'th si scuserà. Rrawia tocca l'argomento "zoroin in consiglio" con Li'qaj, ma brevemente, dato il poco tempo. Gli zoroin se ne vanno.
+
+Rrawia spiega che l'armatura è a riparare e avrà bisogno di un paio di giorni prima che sia pronta. Passa quindi un po' di tempo in attività serene, tra riparazioni, tentativi di incantesimi sia arcani sia divini per scoprire il mistero dietro l'orecchino di Aleinya, ritirare i soldi delle taglie. Viene deciso che Aleinya avrà in affitto una stanza della casa per un costo di due corone al mese (nonostante il gruppo la conosca letteralmente da solo DUE GIORNI, il Metagame trionfa  :lol: ). Gwinne, in visita, offre qualche parere tecnico sulla questione orecchino (possibile catalizzatore negativo atipico non incantato?) e risolve di fare alcune ricerche a riguardo.
+
+E' la mattina del 6 Gennaio quando il gruppo si reca in gilda per trovare nuove taglie. Incontrano il gruppo dei nani e risolvono di fare una taglia insieme, scegliendo questa:
+
+**18M - Va'kta'nas, Braccio del Re**
+
+Probabilmente un nuovo sciamano molto potente. Ma il nostro gruppo, assieme a quello di Garak, è riuscito ad affrontare e sconfiggere due araldi, pensiamo di potercela fare. Il gruppo si dà appuntamento per il giorno dopo alla porta nord, verranno fatti tutti i preparativi del caso.
+
+L'indomani ci sono commenti sul fatto che Nog abbia trovato la fidanzata, e altri sul fatto che Forte Valore sta venendo completato rapidamente. Ecco le informazioni ricevute dal Corpo Esploratori: il Braccio del Re è uno sciamano troll che guida un gruppo di esperti sabotatori, intenti ad attaccare il deposito materiali; impiegano barattoli contenenti delle larve che attaccano il legno e lo fanno marcire. Il suo covo, e quello di una trentina di sabotatori e altri troll di vario genere, si trova dentro il Regno Oscuro: lui non sale mai in superficie per attaccare direttamente. I sabotatori attaccano in gruppi variabili dalle sei alle dodici unità, ogni notte: hanno preso a impiegare tattiche suicide, facendosi esplodere contro ai loro attaccanti. Gli esplosivi che impiegano sono in contenitori abbastanza fragili, scagliandoli a terra li fanno detonare.
+
+Rrawia propone di impiegare il percorso che conduce verso nord, più ad ovest rispetto agli altri due tracciati. Questo percorso in particolare passa vicino alla zona di pattuglia della Guardia Bianca, il che fornisce una maggior sicurezza in caso di problemi. Si procede per questa direzione. Il viaggio scorre tranquillo fino a che i cacciatori non arrivano al limitare del bosco, avvolto in una foschia che limita molto la visibilità; dentro la boscaglia sembra che ci sia qualcosa di grosso che si muove, ma non si riesce a distinguere bene cosa. Pheon e Rrawia vanno in avanscoperta per controllare cautamente di cosa si tratti...

@@ -1,0 +1,52 @@
+---
+post_id: 25220
+topic_id: 4466
+forum: "Squadra 1 - La Squadra Storica"
+topic: "[Recap del 10/03/24] Quartedì 935 - Chimere di merda"
+author: "Korhalias"
+date: 2024-03-15T20:16:31+00:00
+---
+
+# [Recap del 10/03/24] Quartedì 935 - Chimere di merda
+
+*by **Korhalias** on 2024-03-15 20:16 UTC*
+
+Porcatroia, sono morto. Sì, fa parte del gioco, dovevo aspettarmelo, ma non pensavo così presto. Ho così tante cose da imparare, così tante da disimparare, quante da sabotare e quante da costruire.
+
+Non sono deluso, lo sapevo che poteva succedere, ho fatto una scelta e speravo mi andasse bene. Sono stato sfigato, ma dovrò stare più attento.
+
+Mi girano un po' i coglioni all'idea di vivere più all'insegna dello spirito di conservazione che di quello dell'avventura, ma così stanno le cose. Dovrò trovare il modo di rinforzarmi, di essere meno in pericolo. Non è questione di coraggio o avventatezza, non credo che smetterò di cacarmi sotto, ma la paura e l'eccitazione non mi abbandoneranno mai e guai a me se dovessi scegliere di vivere senza una delle due!
+
+Alla fin fine ho fatto quello che mi ero riproposto di fare, contro una Chimera cosa altro avrei potuto combinare? Nascondermi dietro agli alberi e guardare i miei compagni morire? No, col cazzo.
+
+Una Segreta, che poi non era una segreta, ma un portale dorato. Questa cosa forse dobbiamo ricordarcela, forse è un modo per dire che quello che c'è dentro è un po' difficilino. Appena entriamo, una Chimera è zompata in mezzo alla radura in cui siamo stati catapultati. Alberi colorati, cielo arancione, tutto fuori di testa e bellissimo. Pure la Chimera era viola, ma le sue teste facevano male con i colori soliti! Il soffio del Drago mi aveva già colpito una volta, ma Egem era stato esposto di più ed era a terra senza sensi. L'alternativa era lasciare morire lui di sicuro o rischiare di morire io. Beh, ho scelto la prima e mi è andata male.
+
+A quanto mi hanno detto, dopo che sono caduto sono comparsi un mezzo plotone di Gingillion comandati da un Re che hanno sconfitto difficilmente il mostro a quattro teste, evitando che altri dei miei compagni morissero in battaglia. Alla fine dello scontro, il Re dei Gingillion ha voluto il mio Permesso del Valore e mi ha in qualche modo messo in contatto col Sovrano. Non è la persona più simpatica di questo mondo, devo dire.
+
+Prima ti piazza un mostrone davanti e poi ti dice "Eh caro mio, hai fallito nel dimostrare il tuo Valore!" Beh, vaffanculo. Poi mi propone di legare la mia Vita alla Torre così che potrò scambiare il mio Valore con energia vitale nel caso morissi altre volte. Ma questo impedirà agli dei di riportarmi in vita, anche se lo volessero. Mi puzza di fregatura e di scorciatoia. No, sento di avere ancora tanto da dare, sento di avere un ruolo anche per Fadeyn, ma attaccarmi alla vita ad ogni costo rinnegando quello in cui credo, no. Non è la mia strada.
+
+La mia strada ha dei rischi, dei salti nel buio, delle responsabilità che devo prendere in prima persona e che sono disposto a correre, anche se dovesse significare 'sparire nell'oblio', come ha detto lui.
+
+Fatto sta che rifiuto l'offertona e appena il Sovrano mi abbandona, mi ritrovo... o forse è meglio dire che la mia anima si ritrova al cospetto del potere della mia Dea, sopresa di trovarmi lì. Mi domanda cosa sia successo ed è sinceramente stupita nell'apprendere che ho rifiutato la proposta del Sovrano. Dice che la mia decisione le ha dato un momento di Estasi di Fede e ne sono più che contento! E' così potente e maestosa! Non potrà darmi il dono di tornare in vita un'altra volta e farò tesoro di questa possibilità, le sue parole, la sua voce tonante... non me le dimenticherò!
+
+Mi risveglio ridendo, sono ancora pieno di vita, sono tornato! Spiego ai miei compagni quello che mi è successo e la proposta del Sovrano genera molte domande. Quello che mi importa, però, è la mia risposta, netta e senza esitazioni. Decidiamo di uscire da questa realtà parallela prima che un'altra Chimera si faccia viva, la sentiamo volare da qualche parte sopra agli alberi colorati.
+
+Ci dirigiamo a nord, dove troviamo una grande radura con al centro e in basso ad un pendio un vecchio rudere. Shuravi dice che vede le energie magiche confluire in quella direzione, segno che probabilmente è lì che dobbiamo andare per uscire, ma tutto attorno ci sono almeno una cinquantina di Gingillion che si stanno allenando, osservati da due incoronati. Non sappiamo se stiano proteggendo quel rudere o se siano lì solo per caso, ma ipotizziamo diversi scenari. Vorremmo richiamare la Chimera che è da qualche parte per poter distrarre i soldati ed avvicinarci al rudere mentre loro combattono, ma l'idea non è condivisa da tutti. Dopo una lunga attesa in cui cerchiamo di concordare una tattica, metà del plotone si dirige in direzione dei ruggiti della Chimera, abbandonando la radura, mentre l'altra metà viene attirata da uno dei due re che comincia a parlare loro in una lingua a noi sconosciuta. Approfittiamo della loro distrazione per precipitarci giù dal bosco e veniamo notati ed inseguiti dai Gingillion che però sono troppo lontani per raggiungerci. Non sappiamo se siano ostili o no, dato che non si capisce un cazzo di cosa ci urlano contro, ma almeno non ci colpiscono con le lance, il che è già un bene. Shuravi è la più convinta che parlare con loro sia la strada giusta, ma non avendo certezze e non avendo alcun modo di comunicare in maniera sensata con quelle marionette di metallo, decidiamo che evitare qualsiasi contatto sia la cosa più sicura, data la nostra giornata già abbastanza storta.
+
+Una volta raggiunto il rudere, notiamo che ci sono due portali! Uno con un marchio del Sovrano e uno bianco. Tutti i miei compagni cacasotto puntano ad uscire e quindi ci buttiamo in quello Bianco, forse perchè pensano che essendo morto io sia un mezzo moribondo. Beh, usciamo e il portale d'oro è ancora lì. Fyre cerca di assorbirlo per evitare che altri possano finire in quella situazione così rischiosa, ma a quanto pare non si può assorbire e ci accorgiamo ben presto di essere rinchiusi in una specie di barriera invisibile a bolla, tutta intorno a noi e al portale. Egem ci dice che è il segno che al Sovrano non è piaciuto qualcosa che abbiamo o non abbiamo fatto - e poi ditemi che non ha manie di Controllo sto tizio - quindi torniamo dentro al portale, sperando di non incontrare la Chimera di nuovo come la prima volta. Ci va di culo e sentiamo che la bestia sta combattendo non troppo distante da dove siamo, ma conoscendo la strada ci dirigiamo di nuovo verso la radura. Questa volta niente fughe rocambolesche, ci mostriamo ai Gingillion e al loro Re che in una serie di gesti abbastanza patetici ci fanno capire che dobbiamo dimostrare il nostro Valore per poter uscire, forse per colpa del mio rifiuto al Sovrano, dato che la domanda viene rivolta direttamente a me, che tra l'altro ero l'unico che avrebbe voluto entrare nel Marchio già la prima volta! In ogni caso, ci accompagnano al rudere come se fossimo in mega missione e però si assicurano di sbarrarci la strada per l'uscita (paraculi).
+
+Entriamo nel Marchio e cosa ci troviamo? Una bella Arena con una Chimera ancora peggiore della prima, tutta nera, con gli occhi infuocati di nero e che spara raggi di tenebra e di luce. Per lo meno, non soffia tanto quanto quella di prima, non pietrifica e non avvelena! Cambiamo un po' la tattica e lasciamo che sia solo Sik ad affrontarla in mischia, con io dietro che lo curo, abbastanza lontano da non prendermi le fiammate di tenebra. Come si chiamano? Buiate? Non lo so.
+
+Funziona abbastanza bene, anche se ogni tanto la Chinera assorbe l'energia che ha intorno nella Corona che ha sopra al capo e usa quest'energia per sparare raggi neri all'impazzata tutto attorno, distruggendo mezza arena. Ho anche provato a ridurre la capacità magica della corona, ma cavoli non ho potuto provare una seconda volta, perchè quando i colpi di Sik, Egem e Fyre l'hanno stesa, prima di sparire è esplosa in una stronzissima esplosione di buio e luce, inondando tutta l'arena e colpendo a morte Shuravi, anche se era nel pieno delle sue energie.
+
+Recuperiamo i premi del Marchio ed usciamo dall'arena di corsa, col cadavere di Shuravi e appena siamo fuori chiediamo al Re, felice di vederci uscire vittoriosi, di poter fare la stessa cosa di prima col Permesso del valore della maga. Quando capisce cosa è successo, acconsente e grazie alla tessera di Shuravi fa comparire una grande colonna colorata che sale fino al cielo con una corona e che avvolge il corpo della ragazza. Dopo lunghi minuti di attesa, la vediamo sollevarsi, viva e vincolata alla Torre per sempre. Ha accettato il patto del Sovrano.
+
+Usciamo da questo posto di merda, salutando e ringraziando i Gingillion e una volta fuori il portale si richiude dietro di noi, scomparendo.
+
+Egem è sia dispiaciuto a bestia che incazzato con quelli che hanno segnato questo portale come Giallo, senza dare alcuna notizia di Chimere. Rientriamo comunque in città evitando altri rischi, per oggi abbiamo dato.
+
+Facciamo identificare gli oggetti che abbiamo recuperato. Uno è un sacchetto con una polvere che può togliere gli incantamenti dagli oggetti per un minuto e può essere usato tre volte. Poi c'è un blocchetto di metallo che possiamo rivendere facilmente e un paio di guanti per usare meglio le armi a distanza. Fyre ed Egem se li giocano una volta tornati a Santaguardia ed è Fyre ad aggiudicarseli.
+
+Parliamo poi con i due simpatici Ithiani che finalmente si levano dal cazzo e preferiscono andare a vivere a Behexa, un piccolo quartiere probabilmente molto festoso dove ci sono parecchi altri Ithiani. A quanto dice Vexa, vuole scalare la Torre, prendere il posto del Sovrano e comandare lui, sfruttando la magia che ha a disposizione. Direi che per i miei gusti è un pelino troppo arrivista e maniaco del comando. Meno ce l'ho tra le palle e meglio sto, personalmente.
+
+A cena invece parliamo con Bernack che ci dice qualcosa in più sul patto che Shuravi ha stretto col Sovrano, si chiama Vincolo della Torre ed effettivamente permette di scambiare il Valore che c'è sulla propria tessera con energia vitale, in caso si morisse. Quello che però il Sovrano simpaticissimo non ha detto a Shuravi è che ogni volta che si usa questo potere, bisogna avere accumulato più Valore della volta precedente. Quindi sì è utile, ma bisogna morire il meno possibile, che penso sia un po' la cosa che auspichiamo a fare tutti.
